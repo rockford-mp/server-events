@@ -4,3 +4,4 @@ Evenimentul **Lights out** este un eveniment foarte misterios în orașul Los Sa
 ## Premii:
 - bilet la beach please 2036
 - cont super mega pro premium
+- bilet la buzzhouse.online
